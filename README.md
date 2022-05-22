@@ -16,8 +16,13 @@ Coloco-me à disposição para colaborar com o que for preciso.
 Um abraço e um bom trabalho a todos! 
 
 Sílvio Diniz de Medeiros. 
+
+Cel. (11) 99928-2202.
+
 (silviodiniz@uol.com.br) 
+
 https://www.linkedin.com/in/s%C3%ADlvio-diniz-de-medeiros-b3157617/
+
 http://lattes.cnpq.br/2737311183629218
 
 
